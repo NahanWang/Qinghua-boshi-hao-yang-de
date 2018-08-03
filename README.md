@@ -32,10 +32,11 @@
 此事详见（仅剩下的链接）：
 [豆瓣「https://www.douban.com/note/685238643/
 [新浪http://news.sina.com.cn/s/2018-08-02/doc-ihhehtqf9284801.shtml
+[微博http://s.weibo.com/weibo/%25E5%25AD%25A6%25E8%25AF%259A?topnav=1&wvr=6&b=1#1533255795630
 
 如有任何与此有关的信息，请发邮件至：nahanwang@gmail.com 或联系微信：
 
-根据收到的新的信息，我会持续更新此信息。
+我会持续更新上面对，上面的报道。
 
 
 
